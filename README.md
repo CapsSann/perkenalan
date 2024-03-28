@@ -1,3 +1,3 @@
 # perkenalan
 
-perkenalkan nama saya bambang kurnadi
+perkenalkan nama saya capassan
